@@ -90,4 +90,4 @@ Reach out if you have questions or want to collaborate:
 
 * **GitHub:** https://github.com/nehith23
 * **LinkedIn:** www.linkedin.com/in/nehith-v
-* **Email:** ucabvem@ucl.ac.uk
+* **Email:** vemulapallinehith@gmail.com
